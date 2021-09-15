@@ -8,4 +8,3 @@
 - 💬 Ask me about anything, we'll figure it out together :)
 - 📫 How to reach me: shubhamlightning99@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Nothing is funny about Guddu
